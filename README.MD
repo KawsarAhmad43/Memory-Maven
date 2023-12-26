@@ -1,1 +1,1 @@
-![Colorful_Modern_Infinity_Technology_Free_Logo-removebg-preview](https://github.com/KawsarAhmad43/Memory-Maven/assets/54704888/51e91759-14df-45d8-af73-ae644225d332)
+![issue-removebg-preview](https://github.com/KawsarAhmad43/Memory-Maven/assets/54704888/f274b10a-6673-43f1-8895-9b5ee73396d9)
